@@ -1,4 +1,4 @@
-# Kenedy Colloge 
+# Kenedy College 
 
 # 📖 The Founding of Kenedy College
 In 2025, three passionate and ambitious students — Bailey Kennedy, Olajuwon Daniel Abbatty, and Josué Kashila Ilunga — were enrolled in the ICT (Information and Communication Technology) program at MITT (Manitoba Institute of Trades and Technology). As classmates, they shared not only a love for technology, but also a dream: to create a learning environment that empowered others to build a future through tech.
